@@ -24,7 +24,7 @@
 
 <br>
 
-[<img width="356" height="230" alt="click" src="https://github.com/user-attachments/assets/92608276-558f-4fa7-a91f-0bc6e050774f" />](https://도메인추가해야함)
+[<img width="356" height="230" alt="click" src="https://github.com/user-attachments/assets/92608276-558f-4fa7-a91f-0bc6e050774f" />](https://duksungvcd2025.co.kr)
 
 <br>
 
